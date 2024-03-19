@@ -1,1 +1,1 @@
-This is cletsymedia readme
+Thank you AfricanPlan
